@@ -130,7 +130,8 @@ Who knows. Anyway, we can't afford to serve him.
 
 ---
 ## no way "不可能，没门儿"
-	[**now way**. But do you think it's possible that... he's gay?]
+	[**no way**. But do you think it's possible that... he's gay?]
+	[不可能吧，不过你说他会不会是个gay？]
 ## in person "亲自"
 	[Once you've thought it over, please tell me **in person**.]
 	[你仔细考虑一下，想好了**亲自**告诉我。]
