@@ -1,6 +1,6 @@
 #Changing Faces#
 ---
-
+###
 Bavor!
 
 Amazing!
@@ -128,6 +128,7 @@ So **he's destined to** bring misfortune to women, huh?
 
 Who knows. Anyway, we can't afford to serve him.
 
+###
 ---
 ## no way "不可能，没门儿"
 	[**no way**. But do you think it's possible that... he's gay?]
