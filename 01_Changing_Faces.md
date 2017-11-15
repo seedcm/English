@@ -38,7 +38,7 @@ You're the one who spoils me.
 
 Such a **brilliant** performer.
 
-You're a big fish in a small pond, and you **deserver** a bigger stage.
+You're a big fish in a small pond, and you **deserve** a bigger stage.
 
 My uncle has contacted some **theaters** in **Venice. They're willing to** send you an invitation.
 
