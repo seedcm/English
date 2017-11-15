@@ -1,69 +1,70 @@
 #Changing Faces#
 ---
-Bavor!
-Amazing!
-My God he's handsome!
-I didn't expect him to be so **graceful**.
-Ummm, handsome **indeed, but I heard that...
-...he is **not into** girls.
-No way. But do you think it's possible that... he's gay?
 
-Still not good enough! You're **letting** your ancestors **down**. You should be **ashamed**!
-**Kneel**! Don't move !
+	Bavor!
+	Amazing!
+	My God he's handsome!
+	I didn't expect him to be so **graceful**.
+	Ummm, handsome **indeedi**, but I heard that...
+	...he is **not into** girls.
+	No way. But do you think it's possible that... he's gay?
 
-Sir, Mr.Dong sent these gifts to **express his appreciation** once again.
-**Do me a favor.** Tell him not to buy these anymore.
+	Still not good enough! You're **letting** your ancestors **down**. You should be **ashamed**!
+	**Kneel**! Don't move !
 
-Oh...
-Seems like you've learned how to **act spoiled.**
-You're the one who spoils me.
-Such a **brilliant** performer.
-You're a big fish in a small pond, and you **deserver** a bigger stage.
-My uncle has contacted some **theaters** in **Venice. They're willing to** send you an invitation.
-What do you think? Wanna go?
-VENICE?!
-I'll wait for two days.
-Once you've **thought** it **over**, please tell me **in person.**
-Goodbye, Mr.Dong.
+	Sir, Mr.Dong sent these gifts to **express his appreciation** once again.
+	**Do me a favor.** Tell him not to buy these anymore.
 
-Excuse me, Han.
-You've met with Mr.Dong a lot **recently**. People are **starting rumors**.
-You should try to control yourself **a little bit**.
-Rumors? What rumors?
-They're saying you're gay.
-It's easy to **get rid of rumors**.
+	Oh...
+	Seems like you've learned how to **act spoiled.**
+	You're the one who spoils me.
+	Such a **brilliant** performer.
+	You're a big fish in a small pond, and you **deserver** a bigger stage.
+	My uncle has contacted some **theaters** in **Venice. They're willing to** send you an invitation.
+	What do you think? Wanna go?
+	VENICE?!
+	I'll wait for two days.
+	Once you've **thought** it **over**, please tell me **in person.**
+	Goodbye, Mr.Dong.
+
+	Excuse me, Han.
+	You've met with Mr.Dong a lot **recently**. People are **starting rumors**.
+	You should try to control yourself **a little bit**.
+	Rumors? What rumors?
+	They're saying you're gay.
+	It's easy to **get rid of rumors**.
 
 	Hey handsome, come back soon.
 
-Oh, Mr.Han? What a pleasant surprise! Come in please.
-Our girls have been **longing to** see you.
-Feel free to pick whoever you like.
-Who is the most **on demand?**
-You're **straight to the point**. Mr.Han!
-Miss Liu has always been the **top choice** here.
+	Oh, Mr.Han? What a pleasant surprise! Come in please.
+	Our girls have been **longing to** see you.
+	Feel free to pick whoever you like.
+	Who is the most **on demand?**
+	You're **straight to the point**. Mr.Han!
+	Miss Liu has always been the **top choice** here.
 
-This way, please.
+	This way, please.
 
-Miss Liu has a problem with her **eyesight**. I hope you'll be **generous** enough to excuse her.
-Understood. You can go now.
-As you wish.
+	Miss Liu has a problem with her **eyesight**. I hope you'll be **generous** enough to excuse her.
+	Understood. You can go now.
+	As you wish.
 
-I've heard of your beauty for a long time. Now I know the rumors are true.
+	I've heard of your beauty for a long time. Now I know the rumors are true.
 
-**Much appreciated**, Mr.Han, But I'm **wondering...** How did you come to know about me since you never come to such places?
-Do you know me?
-You're a **well-known** performer. Everyone knows who you are. Even though I can't see, I can still **recognize** your voice.
-It's **rough**, yet soft at the same time. how **unique**! ...... I'm **flattered**.
-Since you know I don't come around here very often, I would much appreciate your **guidance**.
-It turns out that your **hearing** isn't that good either.
-You're **prostitute**, a **hooker**. Why try and act so **noble**?
-Actually, you're the one who is acting this way. If you're reall such a **noble** person, why come her?
+	**Much appreciated**, Mr.Han, But I'm **wondering...** How did you come to know about me since you never come to such places?
+	Do you know me?
+	You're a **well-known** performer. Everyone knows who you are. Even though I can't see, I can still **recognize** your voice.
+	It's **rough**, yet soft at the same time. how **unique**! ...... I'm **flattered**.
+	Since you know I don't come around here very often, I would much appreciate your **guidance**.
+	It turns out that your **hearing** isn't that good either.
+	You're **prostitute**, a **hooker**. Why try and act so **noble**?
+	Actually, you're the one who is acting this way. If you're reall such a **noble** person, why come her?
 
-That's strange huh?! I thought Mr.Han was gay.
-You don't know? He's been with two girls before.
-Strangely, they both died. After that, he was never seen with a girl ever again.
-So **he's destined to** bring misfortune to women, huh?
-Who knows. Anyway, we can't afford to serve him.
+	That's strange huh?! I thought Mr.Han was gay.
+	You don't know? He's been with two girls before.
+	Strangely, they both died. After that, he was never seen with a girl ever again.
+	So **he's destined to** bring misfortune to women, huh?
+	Who knows. Anyway, we can't afford to serve him.
 
 ---
 ## no way "不可能，没门儿"
