@@ -9,21 +9,24 @@ My God he's handsome!
 
 I didn't expect him to be so **graceful**.
 
-Ummm, handsome **indeedi**, but I heard that...
+Ummm, handsome **indeed**, but I heard that...
 
 ...he is **not into** girls.
 
 No way. But do you think it's possible that... he's gay?
 
+<>
 
 Still not good enough! You're **letting** your ancestors **down**. You should be **ashamed**!
 
 **Kneel**! Don't move !
 
+<>
 
 Sir, Mr.Dong sent these gifts to **express his appreciation** once again.
 **Do me a favor.** Tell him not to buy these anymore.
 
+<>
 
 Oh...
 
@@ -47,7 +50,7 @@ Once you've **thought** it **over**, please tell me **in person.**
 
 Goodbye, Mr.Dong.
 
-
+<>
 
 Excuse me, Han.
 
@@ -61,11 +64,11 @@ They're saying you're gay.
 
 It's easy to **get rid of rumors**.
 
-
+<>
 
 Hey handsome, come back soon.
 
-
+<>
 
 Oh, Mr.Han? What a pleasant surprise! Come in please.
 
@@ -79,11 +82,11 @@ You're **straight to the point**. Mr.Han!
 
 Miss Liu has always been the **top choice** here.
 
-
+<>
 
 This way, please.
 
-
+<>
 
 Miss Liu has a problem with her **eyesight**. I hope you'll be **generous** enough to excuse her.
 
@@ -91,11 +94,11 @@ Understood. You can go now.
 
 As you wish.
 
-
+<>
 
 I've heard of your beauty for a long time. Now I know the rumors are true.
 
-
+<>
 
 **Much appreciated**, Mr.Han, But I'm **wondering...** How did you come to know about me since you never come to such places?
 
@@ -113,7 +116,7 @@ You're **prostitute**, a **hooker**. Why try and act so **noble**?
 
 Actually, you're the one who is acting this way. If you're reall such a **noble** person, why come her?
 
-
+<>
 
 That's strange huh?! I thought Mr.Han was gay.
 
