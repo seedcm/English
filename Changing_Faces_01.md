@@ -133,31 +133,29 @@ Who knows. Anyway, we can't afford to serve him.
 ##
 ---
 ### no way "不可能，没门儿"
-	[**no way**. But do you think it's possible that... he's gay?]
+	[no way. But do you think it's possible that... he's gay?]
 	[不可能吧，不过你说他会不会是个gay？]
 ### in person "亲自"
-	[Once you've thought it over, please tell me **in person**.]
-	[你仔细考虑一下，想好了**亲自**告诉我。]
+	[Once you've thought it over, please tell me in person.]
+	[你仔细考虑一下，想好了亲自告诉我。]
 ### get rid of "除掉"
-	[It's easy to **get rid of** rumors.]
-	[**除掉**谣言还不简单。]
+	[It's easy to get rid of rumors.]
+	[除掉谣言还不简单。]
 ### do me a favor "帮我个忙"
-	do someone a favor “帮助某人”
-	[i had a problem. Hope someone can **do me a favor**.]
+	[i had a problem. Hope someone can do me a favor.]
 	[我遇到了一个问题。希望有人能帮我一把。]
 ### a big fish in a small pond "小圈子里的大人物"
-	a big fish in a small pond
-	[Jane thinks she has power, but she is just **a big fish in a small pond**.]
+	[Jane thinks she has power, but she is just a big fish in a small pond.]
 	[Jane认为自己位高权重，但她只是小地方的大人物而已。]
 ### he's destined to bring
 	be destined to do "注定..."
-	[We **are destined to meet** each other.]
+	[We are destined to meet each other.]
 	[我们注定会遇见彼此。]
 ### Feel free to pick
 	feel free to do "可以随便..."
-	[**Feel free to ask** me any questions.]
+	[Feel free to ask me any questions.]
 	[可以随便想我提问。]
 ### Afford to serve him
 	afford to do "负担得起..."
-	[I can't **afford to buy** a new car.]
+	[I can't afford to buy a new car.]
 	[我买不起一辆新车。]
