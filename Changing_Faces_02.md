@@ -106,34 +106,34 @@ Didn't you see? Mr.Han isn't really interested in you. He would never say that i
 ##
 ---
 ### forget it "算了，罢了"
-	[Ok,**forget it.**.]
+	[Ok, forget it.]
 	[好吧。当我没说。]
 ### All along "自始至终，一直以来"
-	[**All along, I've had this strange feeling.]
+	[All along, I've had this strange feeling.]
 ### freak out "吓坏，惊吓"
-	[Geeze, you're **freaking** me **out** a little!]
+	[Geeze, you're freaking me out a little!]
 ### pretend to do "假装... 冒充..."
-	[I met monster last night, really! He must have **pretended to be** me!]
+	[I met monster last night, really! He must have pretended to be me!]
 	[我昨天真的碰到妖怪了！一定是它冒充我！]
-	[Don't ever **pretend to be** living well. No one really cares.]
+	[Don't ever pretend to be living well. No one really cares.]
 	[不要假装过得很好，没有人会真的在乎。]
 ### to one's taste "合某人胃口/口味"
-	[it's my honor that she's also **to your taste.** Hope you have fun tonight. Bye.]
+	[it's my honor that she's also to your taste. Hope you have fun tonight. Bye.]
 	[她和您胃口，也是我的荣幸。希望你今晚玩的开心，我先告辞了。]
-	[As for music, Jazz is **to my taste.**]
+	[As for music, Jazz is to my taste.]
 	[音乐方面，爵士整合我胃口。]
 ### ttached to "爱慕，依恋"
-	[He would never say that if he really had feelings for you. Why do you have to **be** so **attached to** him?]
+	[He would never say that if he really had feelings for you. Why do you have to be so attached to him?]
 	[他若真对姑娘有意，绝不会说那样的话。姑娘为何偏要执着于他？]
-	[I **am attached to** the beauty of my hometown.]
+	[I am attached to the beauty of my hometown.]
 	[我依恋着故乡的美景。]
 ### mess with "搞乱"
-	[Then it will change itself to **look just like you** and **mess with** your life.]
+	[Then it will change itself to look just like you and mess with your life.]
 	[然后它会变成你的样子，把你的生活搞得一团糟。]
-	[Don't **mess with** her when she's angry.]
+	[Don't mess with her when she's angry.]
 	[她生气的时候不要去打扰她。]
 ### believe it or not "信不信由你"
-	[I **met a monster** last night, really! **Believe it or not!]
+	[I met a monster last night, really! Believe it or not!]
 	[我昨天真的碰到妖怪了，不信拉倒！]
-	[**Believe it or not.** that's the way it is!]
+	[Believe it or not. that's the way it is!]
 	[信不信由你，反正事情就是这样！]
