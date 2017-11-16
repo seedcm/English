@@ -147,15 +147,12 @@ Who knows. Anyway, we can't afford to serve him.
 ### a big fish in a small pond "小圈子里的大人物"
 	[Jane thinks she has power, but she is just a big fish in a small pond.]
 	[Jane认为自己位高权重，但她只是小地方的大人物而已。]
-### he's destined to bring
-	be destined to do "注定..."
+### be destined to do "注定....." 
 	[We are destined to meet each other.]
 	[我们注定会遇见彼此。]
-### Feel free to pick
-	feel free to do "可以随便..."
+### Feel free to do "可以随便..." 
 	[Feel free to ask me any questions.]
 	[可以随便想我提问。]
-### Afford to serve him
-	afford to do "负担得起..."
+### afford to do "负担得起..."
 	[I can't afford to buy a new car.]
 	[我买不起一辆新车。]
