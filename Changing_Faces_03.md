@@ -47,7 +47,7 @@ Changing faces is an honored skill. it can only be passed down within the family
 
 
 
-You're actually a girl? What a liar! Iput so much effort into our relationship. If this were to **get out to the public,** what would people think of me?
+You're actually a girl? What a liar! I put so much effort into our relationship. If this were to **get out to the public,** what would people think of me?
 
 
 
